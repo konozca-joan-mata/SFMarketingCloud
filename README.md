@@ -52,4 +52,4 @@ La información ha sido sintetizada a partir de las rutas oficiales de Salesforc
 3. *Optimize and Grow Your Use of Marketing Cloud Engagement*
 
 ---
-**Konozca & Joan Mata &copy; 2026** | *Material diseñado para formación y consulta profesional.*
+**Joan Mata &copy; 2026** | *Material diseñado para formación y consulta profesional.*
